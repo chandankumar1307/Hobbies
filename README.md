@@ -2,7 +2,7 @@ HEY GUYS!
 
 
 IM CHANDAN KUMAR 😎😎
-![Alt Text](https://media2.giphy.com/media/lOgu1OnjYF2GHBfRU4/giphy.gif?cid=ecf05e47ba0peevq72j1m61fgwwg5hja4dfpt6ktrgmslwo1&rid=giphy.gif)
+![Alt Text](https://media2.giphy.com/media/lOgu1OnjYF2GHBfRU4/giphy.gif?cid=ecf05e47ba0peevq72j1m61fgwwg5hja4dfpt6ktrgmslwo1&rid=giphy.gif | width=100)
 
 
 
